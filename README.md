@@ -1,1 +1,2 @@
-i make rentrys for my friends and work in my neocities ssometimes
+i make rentrys for my friends and work on my neocities ssometimes
+https://staresintoyurieyess.neocities.org + https://rentry.co/perilouh
